@@ -1,0 +1,11 @@
+![Снимок экрана 2022-06-15 в 00 23 01](https://user-images.githubusercontent.com/66629287/173673134-3e4f60af-d961-4baf-a3b3-06015715adac.png)
+![Снимок экрана 2022-06-15 в 00 23 19](https://user-images.githubusercontent.com/66629287/173673144-481cd240-511e-4778-966a-f95641ea89a2.png)
+![Снимок экрана 2022-06-15 в 00 23 33](https://user-images.githubusercontent.com/66629287/173673148-c51e1b90-9ba9-4846-b758-b3d119c14fd7.png)
+![Снимок экрана 2022-06-15 в 00 24 39](https://user-images.githubusercontent.com/66629287/173673152-87e6cc94-3d25-46f6-a86d-236144b99e10.png)
+![Снимок экрана 2022-06-15 в 00 24 48](https://user-images.githubusercontent.com/66629287/173673156-7b601ba5-11bd-45c2-97b5-d46318d2e19f.png)
+![Снимок экрана 2022-06-15 в 00 26 35](https://user-images.githubusercontent.com/66629287/173673160-b7e4f7a6-9bef-4c0a-800d-fcbb864da3a8.png)
+![Снимок экрана 2022-06-15 в 00 26 46](https://user-images.githubusercontent.com/66629287/173673163-be61003a-e9af-405e-ba0d-e194d43ccb21.png)
+![Снимок экрана 2022-06-15 в 00 26 54](https://user-images.githubusercontent.com/66629287/173673167-6d14068b-56fa-46bd-84c7-f35fda725da1.png)
+![Снимок экрана 2022-06-15 в 00 27 19](https://user-images.githubusercontent.com/66629287/173673171-f1aeecf2-8d29-4e45-83e0-64cc3292fa1b.png)
+![Снимок экрана 2022-06-15 в 00 30 02](https://user-images.githubusercontent.com/66629287/173673174-42c5b1bb-4680-440d-a435-41bca4bdb282.png)
+# MyNew
